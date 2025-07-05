@@ -28,6 +28,7 @@
 　　.       
   
   ✩ ────୨ৎ──── Welcome!! ────୨ৎ──── ✩
+  
               ☾✧ - ;; I don't use PT often but if your here, you probably saw me on it :3
 
              
